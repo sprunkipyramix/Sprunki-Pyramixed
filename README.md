@@ -1,6 +1,6 @@
 # Incredibox Sprunki Pyramixed Mod - Play Online & Create Music with Rhythm Free Game 2025
 
-## [Play Now Sprunki Pyramixed Game!](https://sprunkiall.com/sprunki-pyramixed.html)
+## [Play Now Sprunki Pyramixed Game!](https://sprunkipyramix.org)
 
 Are you ready to embark on a journey of intrigue and intellect? **Sprunki Pyramixed** is the latest sensation in the world of online puzzle games, offering players an unmatched combination of challenging puzzles, vibrant graphics, and immersive gameplay. Whether you’re a casual gamer or a puzzle enthusiast, this game promises hours of entertainment as you navigate its mesmerizing, pyramid-themed universe.
 
